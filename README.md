@@ -1,1 +1,1 @@
-This editor is free to use it Makes htmp pages
+This editor is free to use it Makes html pages
